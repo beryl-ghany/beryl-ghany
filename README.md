@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on litteraly any projects.
 - 📫 How to reach me bghany@claflin.edu / berylghany@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I love singing, an I play the Sax.
+- ⚡ Fun fact: I love singing, and I play the Alto Sax.
 
 <!---
 beryl-ghany/beryl-ghany is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
