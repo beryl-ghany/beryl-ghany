@@ -2,7 +2,7 @@
 - 👀 I’m interested in Java and Java Script programming.
 - 🌱 I’m currently learning computer Science.
 - 💞️ I’m looking to collaborate on litteraly any projects.
-- 📫 How to reach me bghany@claflin.edu / berylghany@gmail.com
+- 📫 How to reach me bghany@claflin.edu
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I love singing, and I play the Alto Sax.
 
